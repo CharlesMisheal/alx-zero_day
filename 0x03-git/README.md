@@ -1,1 +1,1 @@
-my second commit
+moving forward and strong
